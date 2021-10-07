@@ -1,4 +1,4 @@
-【Clash Royale Hack App Download 】 How To Hack Clash Royale With Lucky Patcher 2021【P%#@sw84 】
+【Clash Royale Hack App Download 】 How To Hack Clash Royale With Lucky Patcher 2021【P%#^sw84 】
 ==============================================================================
 UPDATED: [OCTOBER 20, 2021] {ONLINEUSERS:7823}
 
